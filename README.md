@@ -5,5 +5,5 @@
 - 💞️ I’m looking to collaborate on github
 - 📫 How to reach me
 -RAH!
-- 😄 Pronouns: He/Him (batman)
+- 😄 Pronouns: He/Him 
 - ⚡ Fun fact: Nothing about me
